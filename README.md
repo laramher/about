@@ -1,3 +1,5 @@
+Hi, there! I'm Lara 👋
+
 **About me**
 
 In a nutshell:
